@@ -8,9 +8,9 @@
 
 Here are some ideas to get you started:
 
-- 🔭 Atualmente estou trabalhando em ... estudo natural de autótrofos 
-- 🌱 Atualmente estou aprendendo ... autotrofismo
-- 👯 Estou procurando colaborar em ... 
+- 🔭 Atualmente estou trabalhando no ... estudo natural de autótrofos 
+- 🌱 Atualmente estou aprendendo ... autótrofos
+- 👯 Estou procurando colaborar em ... autotrofismo
 - 🤔 Estou procurando ajuda com ... autótrofos
 - 💬 Pergunte-me sobre ... autótrofos
 - 📫 Como entrar em contato comigo: ... meios autotróficos

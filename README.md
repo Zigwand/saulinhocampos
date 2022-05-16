@@ -3,8 +3,6 @@
 
 
 
-Here are some ideas to get you started:
-
 - 🔭 Atualmente estou trabalhando no ... estudo natural de autótrofos 
 - 🌱 Atualmente estou aprendendo ... autótrofos
 - 👯 Estou procurando colaborar em ... autotrofismo
